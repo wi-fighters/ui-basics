@@ -1,3 +1,0 @@
-blah
-blorrrrp
-calamandes
